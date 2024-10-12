@@ -1,5 +1,5 @@
 # Data Analyst
-
+IMG_5977.HEIC
 ### Education
 Bachelor of Commerce in Economics
 
